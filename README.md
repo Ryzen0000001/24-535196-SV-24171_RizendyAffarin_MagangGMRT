@@ -1,2 +1,3 @@
 # 535196_RizendyAffarin_MagangGMRT
-Week 1-
+Rizendy Affarin
+24/535196/SV/24171
